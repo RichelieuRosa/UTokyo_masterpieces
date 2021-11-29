@@ -24,7 +24,7 @@ Author： 舞姐姐
 
 家族企业里有个CEO（校长），好几个秘书（教务），一大批员工（教授们）干活。作为董事长的本乡东子的主要工作其实是站在那里当形象大使吧2333
 
-![PIC1_Dongzi_sihan.jpg](https://i.loli.net/2021/11/29/cC1MNDBGZPJyTfK.jpg width=60%)
+![PIC1_Dongzi_sihan.jpg](https://i.loli.net/2021/11/29/cC1MNDBGZPJyTfK.jpg =80x)
 
 **驹场东子**： 黑发单马尾，戴眼镜，喜欢穿格子衫和牛仔裤，大学生。  
 看着就像是标准的宅女，但其实是个学霸，随便写一写就是班级第一名。平时总背着双肩包，装的都是书和游戏机。  
